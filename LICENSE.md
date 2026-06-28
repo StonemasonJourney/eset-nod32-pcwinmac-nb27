@@ -1,4 +1,4 @@
-# 
+# Seguro ESET NOD32 preajustes para Mac OS | Exclusivo ESET NOD32 preajustes para PC Windows. Con monitoreo de dark web y monitoreo en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
